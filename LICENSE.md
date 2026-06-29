@@ -1,4 +1,4 @@
-#  
+#  advanced Script for steal the brainrot base offers the most advanced steal the brainrot base Script, with auto-farm and auto-heal. Perfect for
 
 
 
